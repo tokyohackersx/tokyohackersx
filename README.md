@@ -1,8 +1,11 @@
 # Denyut Nadi Triad Kegelapan
 
-## Drone musik
+## 🎂Drone musik
 
-- [(WIP)new family Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=e38sreT25fc)
+- 🥰[(WIP)Welcome: Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=R9Vi2XLLjcs)
+
+- 🐼[(WIP)new family Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=e38sreT25fc)
+
 
 <!---
 tokyohackersx/tokyohackersx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
