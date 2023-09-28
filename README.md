@@ -2,6 +2,8 @@
 
 ## 🎂Drone musik
 
+- 🦄[WIP: New Family: Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=4J0OYXQ1Llc)
+
 - 🥰[(WIP)Welcome: Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=R9Vi2XLLjcs)
 
 - 🐼[(WIP)new family Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=e38sreT25fc)
