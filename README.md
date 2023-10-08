@@ -1,8 +1,12 @@
-# Denyut Nadi Triad Kegelapan
+# Denyut Nadi Triad Kegelapan( ex: J_FK_D
 
-## 🎂Drone musik
+## 🎂Drone/ Sludge musik
 
-- 🎂[NO VOX: New Family : Denyut Nadi Triad Kegelapan HD 720p - YouTube](https://www.youtube.com/watch?v=oAKIh7lGCe8)
+- 🎂[NO VOX: New Family : Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=oAKIh7lGCe8)
+
+- 🎂[JFKD welcom](https://www.youtube.com/watch?v=Kj45VaMjp18)
+
+- 🎂[JFKD summary(JRA ](https://www.youtube.com/watch?v=aPjxQ6V5uxE)
 
 ## TEST/ EXPERIMENTAL
 
