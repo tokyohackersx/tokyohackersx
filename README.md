@@ -2,6 +2,8 @@
 
 ## 🎂Drone/ Sludge musik
 
+- 🎂[intro: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=bgtBMzDFe5A)
+
 - 🎂[NO VOX Summaryjra : Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=TpflYgXrU-8)
 
 - 🎂[NO VOX: New Family : Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=oAKIh7lGCe8)
