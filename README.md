@@ -1,16 +1,18 @@
-# Denyut Nadi Triad Kegelapan( ex: J_FK_D
+# Denyut Nadi Triad Kegelapan( a.k.a.: J_FK_D
 
 ## 🎂Drone/ Sludge musik
 
-- 🎂[intro: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=bgtBMzDFe5A)
+- 🎂 [NO VOX: welcome : Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=57vbDOWrFCY)
 
-- 🎂[NO VOX Summaryjra : Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=TpflYgXrU-8)
+- 🎂 [intro: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=bgtBMzDFe5A)
 
-- 🎂[NO VOX: New Family : Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=oAKIh7lGCe8)
+- 🎂 [NO VOX Summaryjra : Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=TpflYgXrU-8)
 
-- 🎂[JFKD welcom](https://www.youtube.com/watch?v=Kj45VaMjp18)
+- 🎂 [NO VOX: New Family : Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=oAKIh7lGCe8)
 
-- 🎂[JFKD summary(JRA ](https://www.youtube.com/watch?v=aPjxQ6V5uxE)
+- 🎂 [JFKD welcom](https://www.youtube.com/watch?v=Kj45VaMjp18)
+
+- 🎂 [JFKD summary(JRA ](https://www.youtube.com/watch?v=aPjxQ6V5uxE)
 
 ## TEST/ EXPERIMENTAL
 
@@ -20,12 +22,7 @@
 
 - 🦄OLD: [WIP: New Family: Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=4J0OYXQ1Llc)
 
-- 🥰[(WIP)Welcome: Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=R9Vi2XLLjcs)
+- 🥰 [(WIP)Welcome: Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=R9Vi2XLLjcs)
 
-- 🐼OLD: [(WIP)new family Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=e38sreT25fc)
+- 🐼 OLD: [(WIP)new family Denyut Nadi Triad Kegelapan - YouTube](https://www.youtube.com/watch?v=e38sreT25fc)
 
-
-<!---
-tokyohackersx/tokyohackersx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
