@@ -6,6 +6,11 @@
 
 - 🐹<neu [10/2566 - Denyut Nadi Triad Kegelapan](https://www.youtube.com/playlist?list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG)
 
+  - 🐹[intro: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=V0X_mUFXe-M&list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG&index=1)
+  - 🐹[Summary: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=lBH0NPvpq_I&list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG&index=2)
+  - 🐹[New family: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=n5gYLjdeFUI&list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG&index=3)
+  - 🐹[Welcome: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=tBakmVGVPcU&list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG&index=4)
+
 - 🐹<old [Denyut Nadi Triad Kegelapan( a.k.a.: J_FK_D](https://www.youtube.com/playlist?list=PLRuC8miwI1jRuwmHXr5_1Y43WcpsUM5x9)
 
 
