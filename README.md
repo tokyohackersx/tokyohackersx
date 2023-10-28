@@ -2,6 +2,15 @@
 
 ## 🎂Drone/ Sludge musik
 
+### playlists
+
+- 🐹<neu [10/2566 - Denyut Nadi Triad Kegelapan](https://www.youtube.com/playlist?list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG)
+
+- 🐹<old [Denyut Nadi Triad Kegelapan( a.k.a.: J_FK_D](https://www.youtube.com/playlist?list=PLRuC8miwI1jRuwmHXr5_1Y43WcpsUM5x9)
+
+
+### videos
+
 - 🎂 [NO VOX: welcome : Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=57vbDOWrFCY)
 
 - 🎂 [intro: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=bgtBMzDFe5A)
