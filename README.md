@@ -5,6 +5,7 @@
 ### playlists
 
 - 🐹<neu [10/2566 - Denyut Nadi Triad Kegelapan](https://www.youtube.com/playlist?list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG)
+- ![10-2023-cover](https://github.com/tokyohackersx/tokyohackersx/assets/144877480/44ec05d1-1a1b-48bb-a9f9-c62f6fff9f2b)
 
   - 🐹[intro: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=V0X_mUFXe-M&list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG&index=1)
   - 🐹[Summary: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=lBH0NPvpq_I&list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG&index=2)
