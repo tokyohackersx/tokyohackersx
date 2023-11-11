@@ -12,6 +12,9 @@
   - 🐹[New family: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=n5gYLjdeFUI&list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG&index=3)
   - 🐹[Welcome: Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=tBakmVGVPcU&list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG&index=4)
 
+- 🔥<wip [wip](https://www.youtube.com/playlist?list=PLRuC8miwI1jQxYJhIf9_Sq6BUzVMA5qAy)
+  - 🔥[WIP: Study XX XXXX :Denyut Nadi Triad Kegelapan](https://www.youtube.com/watch?v=SbcZCzOAeog&list=PLRuC8miwI1jQxYJhIf9_Sq6BUzVMA5qAy&index=1)
+
 - 🐹<old [Denyut Nadi Triad Kegelapan( a.k.a.: J_FK_D](https://www.youtube.com/playlist?list=PLRuC8miwI1jRuwmHXr5_1Y43WcpsUM5x9)
 
 
