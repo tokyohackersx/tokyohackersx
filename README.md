@@ -4,6 +4,13 @@
 
 ### playlists
 
+#### 2024/05
+
+- RE-recorded
+  - [SUMMARY](https://www.youtube.com/watch?v=3pslKiWcyOs)
+
+#### 2013/10
+
 - 🐹<neu [10/2566 - Denyut Nadi Triad Kegelapan](https://www.youtube.com/playlist?list=PLRuC8miwI1jQQk9sj1t6ju6RYAnT3ZYxG)
 - ![10-2023-cover](https://github.com/tokyohackersx/tokyohackersx/assets/144877480/44ec05d1-1a1b-48bb-a9f9-c62f6fff9f2b)
 
