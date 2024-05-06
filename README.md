@@ -8,6 +8,7 @@
 
 - RE-recorded
   - [SUMMARY](https://www.youtube.com/watch?v=3pslKiWcyOs)
+  - [WELCOME](https://www.youtube.com/watch?v=tXOSIe2774U)
 
 #### 2013/10
 
