@@ -6,9 +6,11 @@
 
 #### 2024/05
 
-- RE-recorded
+# **RE-recorded**
+  - [INTRO](https://www.youtube.com/watch?v=LTMqb-_-P-A)
   - [SUMMARY](https://www.youtube.com/watch?v=3pslKiWcyOs)
   - [WELCOME](https://www.youtube.com/watch?v=tXOSIe2774U)
+  - [FAMILY](https://www.youtube.com/watch?v=924yLvXN7mg)
 
 #### 2013/10
 
